@@ -1,0 +1,1 @@
+# Yapay-zeka-proje-raporu-odevi
